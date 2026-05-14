@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom liquidation sniper bot Module | high-frequency + low-frequency, the #1 liquidation sniper bot. Includes high-frequency and low-frequency for a
 
 
 
